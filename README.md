@@ -1,10 +1,4 @@
 
-## <font color=#DB7093 face="verdana" >Happy Birthday My Darling</font>
-## <font color=#FFB6C1 face="verdana" >Happy Birthday My Darling</font>
-## <font color=#FFE4E1 face="verdana" >Happy Birthday My Darling</font>
-
-
-
 ![avatar](20210624.png)
 
 
